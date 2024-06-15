@@ -1,1 +1,0 @@
-# Mathematics-In-Communication
